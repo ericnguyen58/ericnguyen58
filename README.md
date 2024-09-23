@@ -5,6 +5,7 @@
 - 📫 How to reach me
 - Gmail : ngdtoan@gmail.com
 - Phone : 7042990607
+- Linkedln: www.linkedin.com/in/eric-toan-2a1254327
 - ⚡ Fun fact: I can play pool pretty well although I have 3.5 myopic
 - I love Jazz but whenever you catch me watching a Kpop MV. That's fine (I spend most of the time to listen to Kpop than Jazz)
 <!---
